@@ -1,5 +1,5 @@
 <p align="center">
-<img width="400" height="400" alt="Untitled37_20260709024547" src="https://github.com/user-attachments/assets/625cd29d-7f47-4599-83ef-5ba4a6684161" />
+<img src="https://i.imgur.com/3Ut4I1K.png"/>
 </p>
 </div>
 </div>
@@ -9,13 +9,13 @@
 [ 18 : He/Him : AUS : ASD ]
 </div>
 <p align="center">
-ᴘᴜʟʟɪɴ'  ᴏɴ  ᴍʏ  ʙʀᴀɪɴ,  ʙᴏʀɴ
+ʏᴏᴜ ᴡᴀɴɴᴀ ᴄᴀʟʟ ᴍᴇ ꜱᴏᴍᴇᴛʜɪɴɢ? ʜᴇʀᴇ'ꜱ ᴍʏ ɴᴜᴍʙᴇʀ.
   <p align="center">
-ᴀɴᴏᴛʜᴇʀ  ꜰᴜᴄᴋɪɴ'  ᴊᴜɴᴋɪᴇ,  ʙᴏʀɴ 
+</div>
     <p align="center">
-ᴀɴᴏᴛʜᴇʀ  ꜰᴜᴄᴋɪɴ'  ꜱᴄᴜᴍ,  ᴛᴏʀɴ  ᴀᴘᴀʀᴛ
+ʏᴏᴜ ᴡᴀɴɴᴀ ʟᴏᴏᴋ ᴀᴛ ᴍᴇ ᴀꜱ ᴘʀᴏᴅᴜᴄᴛ? ᴡᴇʟʟ ʜᴇʀᴇ'ꜱ ᴍʏ ʙᴀʀᴄᴏᴅᴇ.
 <p align="center">
 ────────────────────────────────
   <p align="center">
-<img width="120" height="120" alt="tumblr_13f2701b9f1754443bdf53a98fa35ffa_ee923283_250" src="https://github.com/user-attachments/assets/768796d0-e0e8-4ac6-a52a-effc50f10451" />
+<img src="https://i.imgur.com/YNod7Ql.png"/>
 </p>
