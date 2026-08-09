@@ -6,7 +6,7 @@
 <p align="center">
 ─────── ♪ ︵︵  𝐂𝐀𝐑𝐓𝐄𝐑  ︵︵  ♪ ───────
 <p align="center">
-[ 18 : He/Him : AUS : ASD ]
+$${\color{red}‎ [ 18‎ ,‎ He/Him ‎ ,‎ AUS‎ ,‎ ASD ]‎ }$$
 </div>
 <p align="center">
 ʏᴏᴜ ᴡᴀɴɴᴀ ᴄᴀʟʟ ᴍᴇ ꜱᴏᴍᴇᴛʜɪɴɢ? ʜᴇʀᴇ'ꜱ ᴍʏ ɴᴜᴍʙᴇʀ.
