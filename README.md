@@ -4,7 +4,7 @@
 </div>
 </div>
 <p align="center">
-─────── ♪ ︵︵  𝐂𝐀𝐑𝐓𝐄𝐑  ︵︵  ♪ ───────
+─────── ♪ ︵︵  𝐊𝐍𝐎𝐗𝐘  ︵︵  ♪ ───────
 <p align="center">
 $${\color{red}‎ [ 18‎ ,‎ He/Him ‎ ,‎ AUS‎ ,‎ ASD ]‎ }$$
 </div>
