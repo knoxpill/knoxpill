@@ -1,4 +1,6 @@
 <p align="center">
+<a href="https://hits.sh/github.com/silentsoft/badge4j/"><img alt="Hits" src="https://hits.sh/github.com/silentsoft/badge4j.svg?label=click%204%20luck&extraCount=543&color=8c8586&labelColor=9b2435"/></a>
+<p align="center">
 <img src="https://i.imgur.com/3Ut4I1K.png"/>
 </p>
 </div>
